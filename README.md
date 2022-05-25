@@ -8,6 +8,13 @@
 
 ![image](https://user-images.githubusercontent.com/526959/169003962-8c9774c8-d66d-4c0b-ac35-90cb2f0ccea5.png)
 
+## 1995-1996:
+![image](https://user-images.githubusercontent.com/526959/170246951-d5fd372c-fe54-4dcc-bd7b-8d409baeaa65.png)
+
+![image](https://user-images.githubusercontent.com/526959/170247586-9c11520a-1a2b-46a7-9123-3210d2258014.png)
+
+![image](https://user-images.githubusercontent.com/526959/170247645-5febdba4-22f4-459c-b41d-85b22b94c8d0.png)
+
 ## 1995:
 ![image](https://user-images.githubusercontent.com/526959/169196869-f16bc5eb-e088-4d1c-be33-f8cfc662655d.png)
 
