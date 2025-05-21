@@ -30,6 +30,19 @@
 ![image](https://user-images.githubusercontent.com/526959/169003134-1da11a0e-cea3-4b05-99a8-3daf380f43de.png)
 
 
+## CÁC CHUYÊN ĐỀ ÔN THI HỌC SINH GIỎI TOÁN QUỐC GIA THPT:
+* Phương tích
+* Trục đẳng phương
+* Tam giác đồng dạng
+* Hàng điểm điều hoà
+* Bài toán đếm
+* Cực trị tổ hợp
+* Ước lượng nghiệm dựa trên hệ số của đa thứ
+* Bất đẳng thức trên tập số nguyên dương
+* Hệ phương trình hàm
+* PT Pell
+* Bài toán tồn tại trong số học, ...
+
 
 
 
